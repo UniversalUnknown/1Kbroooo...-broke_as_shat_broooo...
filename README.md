@@ -1,2 +1,5 @@
-# 1Kbroooo...-broke_as_shat_broooo...
-Ram eater got eaten by python and blasted off my laptop like team rocket
+# 1Kbroooo...
+
+<h3>Check on this video in loop bro... Pls bro...</h3>
+
+https://youtu.be/ye2ASsKQsYA
